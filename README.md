@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Storm092 aka @Storm99999
+- 👀 I’m interested in Re-making Stuff
+- 🌱 I’m currently learning C/C++
+- 📫 Reach me on discord. Storm.#1020
